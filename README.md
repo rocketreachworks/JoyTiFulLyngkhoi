@@ -1,3 +1,5 @@
+IG ID: @Alishazz2023 turn people in fool. No more money taking with force from others #1 
+
 Joytiful Lyngkhoi make business.
 ![image](https://github.com/user-attachments/assets/7f83ac49-527c-4bde-85e3-f50712e4d47e)
 
